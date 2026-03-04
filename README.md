@@ -1,6 +1,6 @@
 For friends,
 
-There are times when I choose a different spot rather than sit near you, I do get unsure if you're busy and rather have space if I suspect you're occupied.
+There are times when I choose a different spot rather than sit near you, I do get unsure if you're busy and you would rather have space if I suspect you're occupied. I'm more than happy to say hello though!
 
 <>
 
