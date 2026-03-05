@@ -8,7 +8,7 @@ Hello everyone, (including friends, hi!)
 
 Spam messages on Strawpage and Atabook is fine.
 
-I never mind cuddling nor hiding at all, even for longer periods.
+I never mind cuddling nor hiding at all, even for longer periods. Piles are fine.
 
 I'm mainly off the keyboard often drawing to post to my Github or Twitter, working on such cosplays, or even share cheers with Barry, I reckon that's his name. Larry? Boring guy #23?
 
