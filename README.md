@@ -1,3 +1,7 @@
+3.5.26 / Hi, I'm going on a hiatus soon, I'm not exactly sure yet when. I'll be working on big projects such as animation, along with life. I'll see you!
+
+
+
 For friends,
 
 There are times when I choose a different spot rather than sit near you, I do get unsure if you're busy and you would rather have space if I suspect you're occupied. I'm more than happy to say hello though!
